@@ -1,1 +1,1 @@
-# cici-workshop-fre
+# cici-workshop-freiheit
